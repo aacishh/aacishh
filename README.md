@@ -1,4 +1,5 @@
-- 👋 Hi, I’m @aacishh
+- 👋 I'm Aashish Gupta from Mumbai, living in Chicago.
+- My experiences include: Adobe Illustrator, Adobe Photoshop, CorelDRAW, Adobe InDesign, Adobe Dreamweaver, Adobe After Effects.
 - 👀 Link to my website > www.thesquarebrackets.com
 
 
